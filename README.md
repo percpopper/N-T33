@@ -11,7 +11,7 @@ i love u 💜
   - English learned :🇬🇧:
   - learning French :o 🥖
   - C-- 💫
-  - 12 years of life experience :D 
+  - 13.2 years of life experience :D 
 
 - 🛠 Experience:
   - Grade 7️⃣
