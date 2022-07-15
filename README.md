@@ -10,10 +10,10 @@ i love u
 - 🖥️ Codering Hcka language
   - English learned :🇬🇧:
   - learning French :o 🥖
-  - C-- 
+  - C-- 💫
   - 12 years of life experience :D 
 
 - 🛠 Experience:
-  - Grade 7 
-  - fortlife RP my favourite game mode
+  - Grade 7️⃣
+  - fortlife RP my favourite game mode 🔫
   - buy me roblux poleaseee 🥺🥺🥺
