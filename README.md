@@ -14,6 +14,6 @@ i love u 💜
   - 13.2 years of life experience :D 
 
 - 🛠 Experience:
-  - Grade 8️⃣
+  - Grade 7️⃣
   - fortlife RP my favourite game mode 🔫
   - buy me roblux pwweaseee 🥺🥺🥺
