@@ -4,7 +4,7 @@ i love u
 ---
 
 <a href="https://discord.com/users/173617721102041090">
-  <img src="https://lanyard-profile-readme.vercel.app/api/173617721102041090?hideTimestamp=true&idleMessage=Just%20chillin'%20at%20the%20moment..." align="right" />
+  <img src="https://lanyard-profile-readme.vercel.app/api/173617721102041090?hideTimestamp=true&idleMessage=sleep/relax time :D <3" align="right" />
 </a>
 
 - 🖥️ Codering Hcka language
