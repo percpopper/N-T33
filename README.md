@@ -1,6 +1,6 @@
 
 
-i love u
+i love u 💜
 ---
 
 <a href="https://discord.com/users/173617721102041090">
