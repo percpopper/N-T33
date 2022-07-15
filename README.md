@@ -16,4 +16,4 @@ i love u
 - 🛠 Experience:
   - Grade 7️⃣
   - fortlife RP my favourite game mode 🔫
-  - buy me roblux poleaseee 🥺🥺🥺
+  - buy me roblux pwweaseee 🥺🥺🥺
