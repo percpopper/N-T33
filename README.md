@@ -8,7 +8,7 @@ i love u
 </a>
 
 - 🖥️ Codering Hcka language
-  - English 🇬🇧
+  - English learned :🇬🇧:
   - learning French :o 🥖
   - C-- 
   - 12 years of life experience :D 
