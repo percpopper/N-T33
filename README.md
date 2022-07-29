@@ -7,13 +7,5 @@ i love u 💜
   <img src="https://lanyard-profile-readme.vercel.app/api/173617721102041090?hideTimestamp=true&idleMessage=sleep/relax time :D <3" align="right" />
 </a>
 
-- 🖥️ Codering Hcka language
-  - English learned :🇬🇧:
-  - learning French :o 🥖
-  - C-- 💫
-  - 13.2 years of life experience :D 
-
-- 🛠 Experience:
-  - Grade 7️⃣
-  - fortlife RP my favourite game mode 🔫
-  - buy me roblux pwweaseee 🥺🥺🥺
+fortlife RP my favourite game mode 🔫
+buy me roblux pwweaseee 🥺🥺🥺
