@@ -7,3 +7,6 @@ i love uuu 🖤❣️💖💘🤍🤍🖤💜
 
 fortlife RP my favourite game mode 🔫
 buy me roblux pwweaseee 🥺🥺🥺
+
+
+Student currently mastering chi and inner peace.
