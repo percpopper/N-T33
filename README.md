@@ -1,11 +1,9 @@
 
 
-i love u 💜
+i love uuu 🖤❣️💖💘🤍🤍🖤💜
 ---
 
-<a href="https://discord.com/users/173617721102041090">
-  <img src="https://lanyard-profile-readme.vercel.app/api/173617721102041090?hideTimestamp=true&idleMessage=sleep/relax time :D <3" align="right" />
-</a>
+[![Discord Presence](https://lanyard.cnrad.dev/api/173617721102041090)](https://discord.com/users/173617721102041090)
 
 fortlife RP my favourite game mode 🔫
 buy me roblux pwweaseee 🥺🥺🥺
